@@ -1,2 +1,2 @@
-# yahak
-Ya Hak !
+# YA HA
+Bugün yeni denemeler yapıyoruz. Bakalım neler olacak ?
